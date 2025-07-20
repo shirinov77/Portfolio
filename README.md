@@ -48,7 +48,7 @@ Yangi, lekin mas’uliyatli va ijodkor ijrochiman. Har bir topshiriqqa professio
 Agar sizga ishonchli ijrochi kerak bo‘lsa — bemalol yozing:
 
 📨 Telegram: [@Shirinov](https://t.me/Shirinov_m)  
-📧 Email: yourmail@gmail.com
+📧 Email: muhammadshirinov11@gmail.com
 
 ---
 
